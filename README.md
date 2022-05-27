@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sierradaniellew
+- 👋 Hi, I’m @sierradwalker
 - 👀 I’m interested in the humanities
 - 🌱 I’m currently learning about Media and Communications, Marketing, Spanish, and Archaeology
 - 💞️ I’m looking to collaborate on digital humanities projects
